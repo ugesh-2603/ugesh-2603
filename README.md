@@ -1,5 +1,5 @@
 # 💫 About Me:
-" I am ugesh kumar k s, a friendly and enthusiastic individual with a passion for life. I enjoys exploring new things, meeting new people, and embracing different experiences. With a positive attitude and a curious mind, I am  always ready to take on new challenges and make the most out of every opportunity. People always call me as great team player and loves to collaborate with others to achieve shared goals. Through their genuine kindness and approachable nature . Get ready to be inspired and motivated by me infectious energy!"
+" I am ugesh kumar k s, a friendly and enthusiastic individual with a passion for life. I enjoys exploring new things, meeting new people, and embracing different experiences. With a positive attitude and a curious mind, I always ready to take on new challenges and make the most out of every opportunity. People always call me as great team player and loves to collaborate with others to achieve shared goals. Through their genuine kindness and approachable nature . Get ready to be inspired and motivated by me infectious energy!"
 
 
 ## 🌐 Socials:
